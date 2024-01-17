@@ -1,1 +1,1 @@
-## Hi there! Later rthere will be some info about me, but not today
+## Hi there! Later there will be some info about me, but not today
